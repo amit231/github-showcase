@@ -4,7 +4,7 @@
 
 🌱 Learning and growing 🚀
 
-👨‍💻 Checkout my [portfolio](https://akshita.vercel.app/)
+👨‍💻 Connect with me on [linkedin](https://www.linkedin.com/in/engineer-amit/)
 
 📚 Exploring Web3 and Defi
 
